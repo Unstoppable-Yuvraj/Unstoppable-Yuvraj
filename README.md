@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with like-minded professionals and work on data-driven projects and foster innovation and create meaningful solutions. 
 - 🙏 Thank you for taking the time and learn about my passion and aspirations.
 - 🙌 Feel free to reach out and let's start a conversation.
-- 🌟 Email Id - yuvrajdhage37@gmail.com.
+- 🌟 Email Id - yuvrajdhage82@gmail.com.
 - 🌟 Linkedin Id - https://www.linkedin.com/in/yuvraj-dhage-48097824b.
 
 
