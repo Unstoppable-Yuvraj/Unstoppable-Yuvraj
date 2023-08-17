@@ -1,10 +1,10 @@
-- 👋 Hi, I’m Yuvraj Dhage
+- 👋 Hi, I’m Yuvraj Dhage. I am a passionate data science and machine learning enthusiast.
 - 👀 I’m interested in MAANG Companies and also interested in learning new technology like AI, ML, and DS.
-- 🌱 I’m currently learning Data Science and Data Analytics.
+- 🌱 I’m currently learning Data Science and Machine learning. 
 - 💞️ I’m looking to collaborate with like-minded professionals and work on data-driven projects and foster innovation and create meaningful solutions. 
 - 🙏 Thank you for taking the time and learn about my passion and aspirations.
 - 🙌 Feel free to reach out and let's start a conversation.
-- 🌟 Email - yuvrajdhage37@gmail.com.
+- 🌟 Email Id - yuvrajdhage37@gmail.com.
 - 🌟 Linkedin Id - https://www.linkedin.com/in/yuvraj-dhage-48097824b.
 
 
